@@ -1,0 +1,5 @@
+- 👋 Oi, eu sou @Joaozx
+- 🪐 Eu tenho 14 anos
+- 📔 Atualmente estou cursando A.A.C
+- 🖥 Tenho muita facilidade e experiência com tecnologia
+- 📫 Como chegar até mim: joaopc247@gmail.com
