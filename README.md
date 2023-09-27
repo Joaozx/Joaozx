@@ -1,5 +1,5 @@
-- 👋 Oi, eu sou @zazaa.71
-- 🪐 Eu tenho 11 anos
-- 📔 Atualmente estou cursando A.A.C
-- 🖥 Tenho muita facilidade e experiência com tecnologia
-- 📫 Como chegar até mim: joaopc247@gmail.com
+- 👋 Oi, eu sou otário
+- 🪐 Eu tenho 1 anus
+- 📔 Atualmente estou cursando A.A.C (Amor Antes de Cristo)
+- 🖥 Tenho muita facilidade e experiência com suicidio
+- 📫 Como chegar até mim: pergunta no posto ipiranga
