@@ -1,4 +1,4 @@
-- 👋 Oi, eu sou Joâo
+- 👋 Oi, eu sou João
 - 🪐 Eu tenho 13 anos
 - 📔 Atualmente estou cursando A.A.C 
 - 🖥 Tenho muita facilidade e experiência com informatica
