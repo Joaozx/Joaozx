@@ -1,5 +1,5 @@
 - 👋 Oi, eu sou Joâo
-- 🪐 Eu tenho 16 anos
+- 🪐 Eu tenho 13 anos
 - 📔 Atualmente estou cursando A.A.C 
 - 🖥 Tenho muita facilidade e experiência com informatica
-- 📫 Como chegar até mim: joaopc247@gmail.com
+- 📫 Como chegar até mim: 
